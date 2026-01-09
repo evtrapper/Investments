@@ -1,0 +1,5 @@
+The information presented herein regarding corporate entities, investment portfolios, strategic affiliations, and personnel connections is a compilation based on publicly available data, regulatory filings, and third-party media reporting. While these details are derived from sources believed to be reliable, the private nature of venture capital and defense contracting means that full transparency is not always possible.
+
+Consequently, all relationships, funding amounts, and consortium memberships described should be regarded as alleged and indicative rather than exhaustive or legally definitive. Corporate structures and investment positions are dynamic and subject to frequent change without public notice.
+
+Readers are strongly advised to conduct independent due diligence. Verification of specific data points through official primary sources—such as SEC filings, direct corporate disclosures, and official government contract databases—is essential before drawing definitive conclusions or making financial or strategic decisions.
